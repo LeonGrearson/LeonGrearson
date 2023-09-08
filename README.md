@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LeonGrearson
+- 👀 I’m interested in, Gym, cybersecurity, games
+- 🌱 I’m currently learning, T level for digital
+- 💞️ I’m looking to collaborate on, Nothing thank you
+- 📫 How to reach me, No
